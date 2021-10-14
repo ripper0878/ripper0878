@@ -5,7 +5,6 @@
 - 📫 How to reach me : twitter , likndln , instagram 
 
 Twitter : https://twitter.com/ripper0878
-Linkdln : https://www.linkedin.com/in/rip-per-61a860214/
 instagram : @its.me.ripper
 
 <!---
